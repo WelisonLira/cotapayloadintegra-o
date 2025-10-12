@@ -1,0 +1,2 @@
+dominio 
+cotaplayloand.com.br 
